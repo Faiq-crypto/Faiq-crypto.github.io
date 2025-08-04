@@ -1,1 +1,0 @@
-# Faiq-crypto.github.io
